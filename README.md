@@ -9,4 +9,4 @@ apps that I like:
 
    Idea: I'd like to create an app that helps people with finances in Kazakhstan. We don't have programs like Roth IRA, or stock platforms, so people can educate themself in financial literacy
 
-   ![gif](https://i.imgur.com/a/VnYTc2v.gif)
+   ![gif](https://i.imgur.com/IQwOgAA.gif)
